@@ -22,7 +22,7 @@ Feel free to explore more on my GitHub repositories.
 ## Contact Me
 
 - **Email:** ac.masterdesign@gmail.com
-- **Portfolio:** Comming soon
+- **Portfolio:** Coming soon
 - **TikTok:** @ac.webdesign
 - **Instagram:** @ac.webdesignn
 - 
